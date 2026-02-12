@@ -1,5 +1,6 @@
 <h1>Right-wing Lies, Liars, &amp; Sycophants</h1>
 <h2>Greed is Good!</h2>
+<p>Any pursuit of profit is Good. Regardless of its outcome.</p>
 <p>Not only deregulated Wall Street for the benefit of Republicans, but rewarded greed. 
 Moved the entire nation to the right 20 degrees of 100. Where now most liberals today 
 would considered a Republican in 1970. Where did humanity lose its bearings?</p>
