@@ -28,12 +28,12 @@ relief among Republicans, who see him as the one best able to recapture the Gipp
 magic. Coincidentally, Reagan’s diaries, edited by Douglas Brinkley, have just been 
 published and also seek to cast him as ​“a true American leader”.</p>
 
-While much of the neocon agenda is in tatters right now, certainly one of its most 
+<p>While much of the neocon agenda is in tatters right now, certainly one of its most 
 successful achievements has been the canonization of Ronald Reagan, which rests 
 crucially on one thing Reagan himself did so well: forgetting the facts. So it’s 
-time to exhume a few.
+time to exhume a few.</p>
 
-First to go is the myth that Reagan was the most popular president since FDR. 
+<p>First to go is the myth that Reagan was the most popular president since FDR. 
 Fairness & Accuracy in Reporting reminds us, ​“During the first two years of 
 Reagan’s presidency, the public was giving President Reagan the lowest level of 
 approval of all modern elected presidents. Reagan’s average first-year approval 
@@ -43,9 +43,9 @@ end of his second year, (remember the Reagan recession?) Reagan’s approval
 rating was 41 percent; after the Iran-Contra scandal was revealed, Reagan’s 
 approval rating stood at 46 percent. His approval rating for his entire 
 presidency was lower than Kennedy’s, Eisenhower’s and even Johnson’s, and at 
-times he was one of the most unpopular presidents in recent history.
+times he was one of the most unpopular presidents in recent history.</p>
 
-Also forgotten is Reagan’s own embarrassing propensity to just make things up. 
+<p>Also forgotten is Reagan’s own embarrassing propensity to just make things up. 
 Reagan was a dunce and a fabricator. One of his most famous assertions was, ​
 “Trees cause more pollution than automobiles do,” and he maintained, wrongly, 
 that sulfur dioxide emitted from Mount St. Helens was greater than that 
@@ -53,16 +53,16 @@ emitted by cars over a 10-year period. (In one day, cars emit 40 times what
 Mount St. Helens released in a day even at its peak activity.) In 1985, 
 Reagan praised the P.W. Botha’s apartheid regime of South Africa for 
 eliminating segregation, a blunder then-Press Secretary Larry Speakes had 
-to correct a few days later. 
+to correct a few days later.</p>
 
-Other examples abound: During a 1983 Congressional Medal of Honor ceremony 
+<p>Other examples abound: During a 1983 Congressional Medal of Honor ceremony 
 Reagan told a story about military heroism that New York Daily News columnist 
 Lars-Erik Nelson wrote never happened. Nelson had checked the citations on all 
 434 Congressional Medals of Honor awarded during WWII. The scene Reagan 
 described did appear, however, in the 1944 film A Wing and a Prayer. Larry 
-Speakes’ response? ​“If you tell the same story five times, it’s true.” 
+Speakes’ response? ​“If you tell the same story five times, it’s true.”</p>
 
-And let’s not forget the wages of ​“trickle down” economics and ​“Reaganomics,” 
+<p>And let’s not forget the wages of ​“trickle down” economics and ​“Reaganomics,” 
 from which we have still not recovered. In 1982, the Congressional Budget 
 Office found that taxpayers earning under $10,000 lost an average of $240 
 from Reagan’s 1981 tax cuts, while those earning more than $80,000 gained 
@@ -73,9 +73,9 @@ mid-’60s. In 1984, a congressional study reported that cuts in welfare had
 pushed more than 500,000 people – the majority of them children – into poverty. 
 Then-Attorney General Ed Meese’s response? ​“I don’t know of any authoritative 
 figures that there are hungry children … people go to soup kitchens because 
-the food is free and that’s easier than paying for it.”
+the food is free and that’s easier than paying for it.”</p>
 
-The neocons would have us believe that Reagan was also a foreign policy 
+<p>The neocons would have us believe that Reagan was also a foreign policy 
 genius. Space prevents me from detailing his administration’s adventures 
 and blunders in Grenada, in Beirut and the visit to the Nazi cemetery in 
 Bitburg. So let’s just remember aid to the Nicaraguan Contras, whom 
@@ -86,9 +86,9 @@ selling of weapons to our sworn enemy, Iran, to then fund the Contras – 
 was both a constitutional disaster and a foreign policy blunder about 
 which we were asked to believe Reagan knew nothing. His administration 
 was also thoroughly corrupt: Eight senior officials in his administration 
-were indicted.
+were indicted.</p>
 
-Fabrication, lying, cruel and counterproductive policies at home and abroad, 
+<p>Fabrication, lying, cruel and counterproductive policies at home and abroad, 
 bloating of the deficit, widening the gap between rich and poor: These are the 
 Reagan legacy. As Republican candidates seek to wear his mantle, their Democratic 
-opponents need to remind Americans exactly what they are putting on.
+opponents need to remind Americans exactly what they are putting on.</p>
